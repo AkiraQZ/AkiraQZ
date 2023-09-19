@@ -1,3 +1,3 @@
 Hello. i'm AkiraQZ!  
-Telegram: @Akirakizi   
-Discord: akiraqz
+Telegram: [@Akirakizi](https://t.me/Akirakizi)   
+Discord: akiraqz 
